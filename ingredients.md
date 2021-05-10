@@ -8,3 +8,4 @@
 1/2 Tbsp. salt
 1/2 tsp. black pepper
 1/4 tsp. paprika
+have funnnn
